@@ -1,0 +1,1 @@
+# StuckUp-QualComm
